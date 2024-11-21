@@ -4,5 +4,5 @@ Cricket, Education, Digital creator, Funny videos, Natural video, Travelling & S
 <br>
 Welcome to your favourite Cricket club 
 Also watch our YouTube channel 
-@Creative Muneer 
+@CreativeMuneer 
 Join our events.
