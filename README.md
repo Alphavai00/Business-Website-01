@@ -1,6 +1,8 @@
 #FARHAD BIO
 
-Welcome! My name is Farhad Hossain. Currently, I  am a student exploring the dynamic world of media and communication".
+Welcome! My name is Farhad Hossain. 
+
+Currently, I  am a student exploring the dynamic world of media and communication".
 
 I am part of the HSC 26 Batch and actively pursuing my dream to study at Tsinghua University, where I aim to specialize in "journalism and mass communication". I am deeply committed to "learning and aspire to make a positive impact by sharing meaningful stories and ideas that inspire and connect people."
 
